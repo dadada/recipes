@@ -4,7 +4,7 @@
 
 **?**
 
-https://cooco.de/lobscouse.html*
+https://cooco.de/lobscouse.html
 
 ---
 
