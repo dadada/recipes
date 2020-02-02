@@ -6,23 +6,23 @@
 
 ## Brussel sprouts
 
-- *1½ lb.* brussels sprouts, trimmed, halved
-- *¼ cup* extra-virgin olive oil
-- *½ tsp.* kosher salt, plus more
+- *600 g* brussels sprouts, trimmed, halved
+- *15 ml* extra-virgin olive oil
+- *1.5 g* kosher salt
 - Freshly ground black pepper
 
 ## Glaze
 
-- *¼ cup* honey
-- *⅓ cup* sherry vinegar or red wine vinegar
-- *¾ tsp.* crushed red pepper flakes (optional)
-- *3 Tbsp.* unsalted butter
+- *60 ml* honey
+- *160 ml* sherry vinegar or red wine vinegar
+- *10 g* crushed red pepper flakes (optional)
+- *45 g* unsalted butter
 - *3* scallions, thinly sliced on a diagonal
-- *1 tsp.* finely grated lemon zest
+- *2 g* finely grated lemon zest
 
 ---
 
-Place a rimmed baking sheet on bottom rack of oven; preheat to 450°. Toss brussels sprouts and oil in a large bowl; season with salt and black pepper.
+Place a rimmed baking sheet on bottom rack of oven; preheat to 230 ºC. Toss brussels sprouts and oil in a large bowl; season with salt and black pepper.
 
 Carefully remove baking sheet from oven. Using tongs, arrange brussels cut side down on baking sheet. Roast brussels on bottom rack until softened and deeply browned, 20–25 minutes.
 
