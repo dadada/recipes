@@ -19,8 +19,8 @@ Angepasst von [Vegane Soljanka mit Würstchen](https://veganuschka.de/rezepte/su
 - *14 g* Knoblauch
 - *30 ml* Öl
 - *0.2 g* Lorbeerblatt
-- *5 ml* Essig, 25 %, oder
-- *20 ml* Gewürzgurkenwasser
+- *5 ml* Zitronensaft
+- *5 g* Zitronenschale
 - *500 ml* Wasser
 - *7 g* Pfeffer
 - *8 g* Paprikapulver, edelsüß
@@ -44,5 +44,5 @@ Die Kartoffelwürfel ins kalte Wasser geben. Gemüsebrühe sowie ein Lorbeerblat
 
 Die Paprika und die veganen Wurstchen kurz scharf anbraten und mit zu den Kartoffelwürfeln geben und 15 Minuten köcheln lassen.
 
-Mit Zucker, Pfeffer, Salz, Zitornensaft, Gewürzgurkenwasser oder Essig abschmecken und kurz aufkochen. Serviert wird die Soljanka mit veganem Frischkäse oder Crème fraîche.
+Mit Zucker, Pfeffer, Salz, Zitronenschale, Zitornensaft, abschmecken und kurz aufkochen. Serviert wird die Soljanka mit veganem Frischkäse oder Crème fraîche.
 
