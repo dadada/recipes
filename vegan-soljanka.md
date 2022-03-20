@@ -44,5 +44,5 @@ Die Kartoffelwürfel ins kalte Wasser geben. Gemüsebrühe sowie ein Lorbeerblat
 
 Die Paprika und die veganen Wurstchen kurz scharf anbraten und mit zu den Kartoffelwürfeln geben und 15 Minuten köcheln lassen.
 
-Mit Zucker, Pfeffer, Salz, Zitronenschale, Zitornensaft, abschmecken und kurz aufkochen. Serviert wird die Soljanka mit veganem Frischkäse oder Crème fraîche.
+Mit Zucker, Pfeffer, Salz, Zitornensaft, abschmecken und kurz aufkochen. Serviert wird die Soljanka mit veganem Frischkäse oder Crème fraîche.
 
