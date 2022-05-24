@@ -20,7 +20,7 @@ Angepasst von [Vegane Soljanka mit Würstchen](https://veganuschka.de/rezepte/su
 - *30 ml* Öl
 - *0.2 g* Lorbeerblatt
 - *5 ml* Zitronensaft
-- *5 g* Zitronenschale
+- *20 g* Zitronenscheiben
 - *500 ml* Wasser
 - *7 g* Pfeffer
 - *8 g* Paprikapulver, edelsüß
@@ -31,6 +31,7 @@ Angepasst von [Vegane Soljanka mit Würstchen](https://veganuschka.de/rezepte/su
 
 - *20 g* Gewurzengurken
 - *20 g* (Veganer) Frischkäse oder Crème fraîche
+- *20 g* Vegane Saure Sahne
 - *10 g* Schnittlauch
 - *10 g* Petersilie
 
