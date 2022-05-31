@@ -1,4 +1,4 @@
-# Vegane Soljanka mit Wurst
+# Vegane Soljanka mit Tofu
 
 Angepasst von [Vegane Soljanka mit Würstchen](https://veganuschka.de/rezepte/suppen/vegane-soljanka-mit-wuerstchen/)
 
@@ -14,7 +14,7 @@ Angepasst von [Vegane Soljanka mit Würstchen](https://veganuschka.de/rezepte/su
 - *155 g* Paprika, rot
 - *300 g* Kartoffeln
 - *220 g* Zwiebeln
-- *200 g* Sojawurst, z.B. Fleischwurst
+- *200 g* Tofu
 - *30 g* Tomatenmark
 - *14 g* Knoblauch
 - *30 ml* Öl
